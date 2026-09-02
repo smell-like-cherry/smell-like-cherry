@@ -1,2 +1,2 @@
-<p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=baskerville&size=30&duration=980&pause=950&color=F758AB&center=true&vCenter=true&width=435&lines=you+can+try+to+hide+from+me;but+you+smell+like+cherry;(smell+like+cherry!)" alt="Typing SVG" /></a>
-<p align="center"> <img width="620" height="311" alt="image" src="https://github.com/user-attachments/assets/254dcf72-889b-4005-a8d3-b7b232d31b75" />
+<p align="center"> #D0CFD2
+<p align="center"> <a href="https://ibb.co/DHqkNv2K"><img src="https://i.ibb.co/cSmtPZnT/Untitled1903-20260902200616.png" alt="Untitled1903-20260902200616" border="0"></a>
