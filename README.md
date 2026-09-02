@@ -8,4 +8,4 @@ $\color{#A29BA0}male/unlabeled$ $\color{#A29BA0}☆$ $\color{#A29BA0}17$
 
 $\color{#A29BA0}intp-t$ $\color{#A29BA0}☆$ $\color{#A29BA0}british$
 
-$\color{#A29BA0}-15 dni/iwec$
+$\color{#A29BA0}- 15 dni/iwec$
